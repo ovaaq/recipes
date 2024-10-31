@@ -2,8 +2,8 @@
 
 ### Ingredients of the Stir Fry Sauce:
 - 50g Water
-- 20.5 Oyster Sauce
-- 13.4 Potato Starch 
+- 20.5g Oyster Sauce
+- 13.4g Potato Starch 
 - 10g Red Wine Vinegar
 - 10g Beef Stock Cube
 - 9g Sriracha
