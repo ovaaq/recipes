@@ -4,7 +4,7 @@
 - 1100g Apple Juice
 - 130g Lemon Juice
 - 75g Honey
-- 60 Ginger
+- 60g Ginger
 - 35g Lemon Peels
 
 ### Method:
