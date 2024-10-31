@@ -5,6 +5,7 @@
 - 20.5 Oyster Sauce
 - 13.4 Potato Starch 
 - 10g Red Wine Vinegar
+- 10g Beef Stock Cube
 - 9g Sriracha
 - 7.2g Soy Sauce
 - 6g Sugar
