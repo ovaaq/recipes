@@ -27,3 +27,6 @@
 2. Prep broccoli, beef, spring onion, garlic and ginger
 3. Stir fry incredients
 4. Add sauce
+
+### To Improve
+- Bit more sauce compared to the other items
