@@ -8,6 +8,7 @@
 ### Method:
 1. Combine everything
 2. Let rest 10min
-3. Use tortilla press
-4. medium high heat
-5. flip and observe "bubling"
+3. Form 35g dough balls
+4. Use tortilla press
+5. medium high heat
+6. flip and observe "bubling"
