@@ -26,3 +26,6 @@
 ### Tips:
 - Do not whip eggs so the custard won't from bubbles
 - Try to make thin layer of sugar, too much ain't good
+- Maybe add little salt?
+- Garnish with blueberries etc.
+  
