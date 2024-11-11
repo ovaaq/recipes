@@ -1,0 +1,11 @@
+- Roasted Garlic
+- Lentils
+- Heavy Cream
+- Parmesan
+- Chicken Stock
+- Onion
+- Lemon
+- Potatoes?
+- Mushroom?
+- Tomatoes?
+- Black Pepper
