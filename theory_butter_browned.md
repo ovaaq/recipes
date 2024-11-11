@@ -1,0 +1,3 @@
+- brown half of the butter
+- whip into other half
+- good on bread?
