@@ -9,7 +9,7 @@
 - 7g Active Dry Yeast
 
 ### Method:
-1. Combine everything
+1. Combine everything except the oil
 2. Let it rest in room temp for one hour
 3. Overnight in the fridge
 4. Oil sheet and put the dought in
