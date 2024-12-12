@@ -8,7 +8,7 @@
 - 18g Lime Peals
 - 15g Ginger
 - 8g Lemon Peals
-- 8g Vanilla Sugar
+- 10g Vanilla Sugar
 - 8g Taurine
 - 4g Mint
 - 3g Citric Acid
