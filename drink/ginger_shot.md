@@ -6,6 +6,7 @@
 - 75g Honey
 - 60g Ginger
 - 35g Lemon Peels
+- ?g Turmeric
 
 ### Method:
 1. Combine apple juice, ginger and lemon peel
