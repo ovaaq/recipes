@@ -14,11 +14,10 @@
 ### Method:
 1. Combine everything except taurine, citric acid and caffeine overnight at fridge
 2. Strain with cheese cloth
+3. Double filtration
 
 ### Tips:
-- 30% Syryp & 70% Carbonated water yields good drink 
-- Pear leaves fine "mush" into the drink, double filtration without much pressure
+- 28% Syryp & 72% Carbonated water yields good drink 
 
 ## Improve
-- More Vanilla
-- More Oak
+- A hint less raspberry
