@@ -2,9 +2,7 @@
 
 ### Ingredients:
 - 1000g Whole Milk
-- 200g Heavy Cream
-- 10g Salt
-- 2.5g Citric Acid
+joj
 
 ### Method:
 1. Milk, cream and warm up to 80C
