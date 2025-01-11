@@ -1,8 +1,16 @@
 # Glutenfree kaakku
 
 ### Ingredients:
-- 1000g Whole Milk
-joj
+- 233g eggs 4
+- 276g sugar
+- 150g butter
+- 245g glutenfree flour
+- 249.8 - 245.6 kaneli
+- 3.3g kardemumma
+- 1.1g pomeranssi
+- 5.6 sooda
+- 154g kuohukerma 
+
 
 ### Method:
 1. Milk, cream and warm up to 80C
