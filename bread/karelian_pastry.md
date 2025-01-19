@@ -1,4 +1,4 @@
-# Wheat Baguet
+# Karelian Pastry Dough
 
 ### Ingredients:
 - 1500g Rye Flour
